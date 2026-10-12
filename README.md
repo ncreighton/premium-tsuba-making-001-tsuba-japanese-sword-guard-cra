@@ -1,0 +1,2 @@
+# premium-tsuba-making-001-tsuba-japanese-sword-guard-cra
+Tired of generic sword accessories that lack the soul of a true samurai? Your tsuba projects feel flat because you're missing authentic, historically-inspired designs—until now.  The Tsuba Japanese Sword Guard Craft Studio solves the pain of designing from scratch by providing a curated library of 50+ printable templates based on Edo-period motifs.
